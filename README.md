@@ -1,2 +1,0 @@
-# panduranga
-# tuday
